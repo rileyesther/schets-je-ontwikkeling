@@ -1,0 +1,22 @@
+# schets je ontwikkeling
+
+
+# Home
+
+In deze deel taak laat ik mijn ontwikkeling zien door middel van schetsen
+
+
+# Informatie verzamelen
+
+In dit kopje laat ik de informatie zien die ik wil verwerken in mijn praatplaat.
+Deze 3 onderdelen heb ik hierbij gebruikt: school, muziek (werk) en privé.
+
+-foto-
+
+Hierboven laat ik zien hoe ik dat heb gedaan, ik heb mezelf 4 vragen gesteld om me te helpen al deze informatie samen te stellen. De vragen waren:
+- Wat kon je al?
+- Wat heb je allemaal geleerd?
+- Wat wil je de komende tijd graag leren?
+- Wat zijn mogelijke obstacles 
+
+Ik heb goed naar mezelf gekeken en hoe alles deze afgelopen periode is gegaan.
