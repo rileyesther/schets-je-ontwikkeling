@@ -11,7 +11,9 @@ In deze deel taak laat ik mijn ontwikkeling over de afgelopen periode met behulp
 In dit gedeelte geef ik weer welke informatie ik wil integreren in mijn presentatie. Ik heb drie specifieke onderdelen gebruikt voor dit doel: school, muziek (werk) en privé.
 
 [
+
 ](https://imgur.com/sK2ed1O)
+
 Hierboven laat ik zien hoe ik te werk ben gegaan, ik heb mezelf 4 vragen gesteld om me te helpen deze informatie samen te stellen. De vragen waren:
 - Wat ging er goed?
 - Wat heb je allemaal geleerd?
