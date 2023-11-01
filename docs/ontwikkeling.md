@@ -26,9 +26,9 @@ Ik heb geevalueerd hoe alles deze  afgelopen periode is verlopen .
 
  In dit deel wil ik laten zien waar ik vond dat ik goed bezig was en waar ik dacht dat ik nog kon verbeteren. Dit wil ik tonen aan de hand van een tijdlijn waarop ik mijn persoonlijke groei en de gebieden waar ik nog verder kan groeien, laat zien.  Het is eigenlijk een soort samenvatting van mijn sterke punten en de gebieden waar ik nog aan wil werken, en waar ik hoop te zijn in de toekomst weergegeven in een tijdschema.
 
- [
+ 
 
-](https://imgur.com/y61oNHF)
+<img src="https://imgur.com/y61oNHF.png" width="800">
 
 Semester 1 gaat over de periode van begin september tot eind October, hierbij heb ik bekijken naar verschillende kopjes die echt een invloed hadden op dat semester. daarnaast heb ik ook toegevoegd hoe ik me voelden op dat moment want naast verschillende gebeurtenissen hadden mijn emoties ook invloed over hoe deze periode is verlopen.
 
@@ -38,9 +38,9 @@ Semester 2 is eigenlijk meer een verspilling over hoe ik denk dat het semester g
 
 in dit onderdeel heb ik stil gezeten en in mezelf zitten denken wel metaforen bij mij naar boven springen als ik denk aan hoe het nu gaat met mijn process op school. Deze kwamen tot mij.
 
-[
 
-](https://imgur.com/1K8QfX9)
+
+<img src="https://imgur.com/1K8QfX9.png" width="800">
 
 Ik zal even uitleggen wat elk metafoor inhoud
 
