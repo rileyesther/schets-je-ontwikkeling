@@ -27,7 +27,8 @@ Ik heb geevalueerd hoe alles deze  afgelopen periode is verlopen .
 
  In dit deel wil ik laten zien waar ik vond dat ik goed bezig was en waar ik dacht dat ik nog kon verbeteren. Dit wil ik tonen aan de hand van een tijdlijn waarop ik mijn persoonlijke groei en de gebieden waar ik nog verder kan groeien, laat zien.  Het is eigenlijk een soort samenvatting van mijn sterke punten en de gebieden waar ik nog aan wil werken, en waar ik hoop te zijn in de toekomst weergegeven in een tijdschema.
 
- -foto-
+ [
+](https://imgur.com/y61oNHF)
 
 Semester 1 gaat over de periode van begin september tot eind October, hierbij heb ik bekijken naar verschillende kopjes die echt een invloed hadden op dat semester. daarnaast heb ik ook toegevoegd hoe ik me voelden op dat moment want naast verschillende gebeurtenissen hadden mijn emoties ook invloed over hoe deze periode is verlopen.
 
