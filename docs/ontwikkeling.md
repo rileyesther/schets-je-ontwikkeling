@@ -40,7 +40,7 @@ Ik zal even uitleggen wat elk metafoor inhoud
  - **Boot op zee met golf**:
 Laat zien hoe dingen er misschien intimiderend uitdunnen zien waardoor je het liefst wilt omdraaien en terug wil gaan , maar on vooruit te komen ga je toch je angsten onder ogen moeten zien
 
-- **vlinders, rupsen en coconnen**
+- **vlinders, rupsen en coconnen**:
 Sommige zijn al vlinders geworden , andere zitten nog in hun cocon en een paar zijn zelfs nog rupsen. Wat ik hiermee wil vertellen is dat sommige dingen al heel goed gaan en anderen nog niet maar dat dat oke is want alles gebeurd op z’n tijd.
 
 - **Doolhof** :
