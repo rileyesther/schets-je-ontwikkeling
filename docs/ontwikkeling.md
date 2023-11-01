@@ -35,6 +35,8 @@ Semester 2 is eigenlijk meer een verspilling over hoe ik denk dat het semester g
 
 in dit onderdeel heb ik stil gezeten en in mezelf zitten denken wel metaforen bij mij naar boven springen als ik denk aan hoe het nu gaat met mijn process op school. Deze kwamen tot mij.
 
+-foto-
+
 Ik zal even uitleggen wat elk metafoor inhoud
 
  - **Boot op zee met golf**:
